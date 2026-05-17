@@ -1,4 +1,4 @@
-# 
+# 终极 Adobe Premiere Pro PC版 脚本 是最佳 Adobe Premiere Pro PC版 脚本，集成 文本动画 和 鼓机。安全、可靠、优化，性能最大化。
 
 
 
